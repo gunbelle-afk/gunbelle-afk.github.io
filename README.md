@@ -1,2 +1,1 @@
-# gunbelle-afk.github.io
-Email: Gunnarbellehumeur@gmail.com
+# gunbelle-afk.github.io Email: Gunnarbellehumeur@gmail.com
